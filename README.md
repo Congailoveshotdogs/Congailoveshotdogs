@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Congailoveshotdogs
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Python
+- 📫 How to reach me meserekovvladomir@gmail.com
+- 💎 My discord: Congai
